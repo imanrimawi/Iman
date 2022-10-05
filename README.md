@@ -6,6 +6,8 @@
 ###### (https://images2.content-hci.com/commimg/myhotcourses/blog/post/myhc_89683.jpg) *
 ***************************************************************************************
 
+![Computer Science](/maxresdefault.jpg)
+
 > now lets see if this blackquotes thingy workes so i keep typing for a long long long long long long long long long long long long long long long long logn glong it didnt work
 
 
